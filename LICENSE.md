@@ -1,4 +1,4 @@
-
+pro rivals Scripts | auto-win + god is your go-to resource for rivals domination. Featuring auto-win and god, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
